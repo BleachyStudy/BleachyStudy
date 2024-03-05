@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BleachyStudy
+- 👀 I’m interested in writing README.txt
+- 🌱 I’m currently learning about writing README.txt
+- 💞️ I’m looking to collaborate on writing on my README.txt
+- 😄 Pronouns: README.txt
